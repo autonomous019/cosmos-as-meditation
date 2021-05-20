@@ -3,6 +3,7 @@
 
 
  Introduction – What is Gnosis (`irfan)?
+ 
 The following work deals exclusively with cosmology and spirituality. In Shi'a Islam, and it's modern messianic reflection in the Baha'i Faith, the idea of gnosis or innate direct experiential knowledge of the divine is known as `irfan
 
 <ul>
